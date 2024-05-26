@@ -1,4 +1,4 @@
-# YO! THAT'S ME THERE WELCOME <img src="https://raw.githubusercontent.com/MartinHeinz/MartinHeinz/master/wave.gif" width="30px">
+# YO!  WELCOME <img src="https://raw.githubusercontent.com/MartinHeinz/MartinHeinz/master/wave.gif" width="30px">
 <br>
 
 
